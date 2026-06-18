@@ -16,6 +16,7 @@ Videos del proceso de creación :
 
 [![Alt text](https://img.youtube.com/vi/ZRACK45i0x8/0.jpg)](https://www.youtube.com/shorts/ZRACK45i0x8))
 
+[![Alt text](https://img.youtube.com/vi/KMmfnJcAEUQ/0.jpg)](https://www.youtube.com/shorts/KMmfnJcAEUQ))
 
 
 
